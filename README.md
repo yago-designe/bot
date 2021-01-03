@@ -1,1 +1,1 @@
-# bot
+# comunidade otaku
